@@ -1,0 +1,44 @@
+# lipu li jan [mije ona wawa ale ma open nena]
+## lipu pi nanpa wan li jan [nasin ilo pali alasa]
+### kipisi lipu wan
+1. mi jan [nasin ilo pali alasa] li kama lon e mama pona la mama mi li pana sona pi (sona ale mama) e mi</br>
+nasin pi (tenpo suno mi) la mi lukin e utala mute taso tenpo suno ale mi la jan sewi li pana pona e mi</br>
+mi jo sona suli e pona pi (jan sewi) e sona ala pi (jan sewi) la mi pali e lipu lon tan pali mi pi (tenpo suno mi)
+2. mi pali e lipu lon kepeken toki pi (mama mije mi)</br>
+toki ni li pali e sona pi (kulupu [jan uta tawa awen]) e toki pi (kulupu [ma ante sewi uta])
+3. en mi sona e ni</br>
+lipu tan mi li lon</br>
+en luka mi li pali e ni</br>
+en mi pali e ni tan sona mi
+4. jan [lawa e kulupu ilo] pi mama mije mi li lon e ma tomo [jan e lawa uta sewi awen lon a jo ilo ni] lon tenpo ona ale</br>
+jan Setekija pi lawa ma Juta li monsi lawa</br>
+tenpo ni la kulupu jan toki pi jan sewi li kama</br>
+kulupu ni li toki e oante nasin tawa jan ale</br>
+ante ala la ma tomo [jan e lawa uta sewi awen lon a jo ilo ni] suli li pakala
+5. mama mi Leki li tawa la ona li toki e jan lawa kepeken pilin ale tawa jan ona
+6. ona li toki e jan lawa la linja seli li kama li lon kiwen poka</br>
+ni la ona li lukin mute li kute mute</br>
+tan ni la ona li tawa wawa mute
+7. ona li tawa e tomo ona lon ma tomo [jan e lawa uta sewi awen lon a jo ilo ni]</br>
+ona li tawa e lape tan pilin mute e jan sewi kon tan ijo mute lukin 
+8. ona li pilin mute e jan sewi kon la ona li lukin e lukin pi (insa lawa) </br>
+lukin pi (insa lawa) la ona li lukin e sewi li open </br>
+ona li sona lukin e ni </br>
+jan sewi li awen e supa lawa li insa e kulupu suli jan pi (pana toki)</br>
+kulupu ni li kalama musi li toki sewi tawa jan sewi ona
+9. jan [lawa e kulupu ilo] li lukin e ni </br>
+jan wan li tawa anpa tan sewi </br>
+suno pi (jan ni) li suli tawa sona lon tenpo pi(sona sewi)
+10. kin la jan [lawa e kulupu ilo] li lukin e jan luka luka tu </br>
+jan kulupu ni li alasa e jan suno </br>
+suno pi (jan kulupu ni) li suli tawa mun lili lon sewi
+11. jan kulupu li tawa anpa li tawa lon supa ma </br>
+jan nanpa wan li kama li awen poka e mama mi li pana e lipu tawa ona li toki e ni </br>
+mama mi li o lukin e ona 
+12. jan [lawa e kulupu ilo] li lukin e lipu la ona li jo mute e kon pi (jan lawa)
+13. ona li lukin sitelenli toki e ni </br>
+te a a tawa ma [jan e lawa uta sewi awen lon a jo ilo ni] tan mi lukin e pali ike sina to </br>
+kin la mama mije mi li lukin sitelen e ijo mute pi (ma [jan]) ni </br>
+ni en jan lon ni li pakala </br>
+jan mute li moli tan palisa utala </br>
+jan pi (ma [pali a palisa ilo lon o n a]) li kama jo e jan mute li tawa e ma [pali] lon ona
