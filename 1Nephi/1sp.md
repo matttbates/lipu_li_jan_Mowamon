@@ -1,4 +1,4 @@
-# lipu li jan [mije ona wawa ale ma open nena]
+#󱤪󱤧󱤑󱦐󱤵󱥆󱥵󱤄󱤰󱥇󱥀󱦑
 ## lipu pi nanpa wan li jan [nasin ilo pali alasa]
 ### kipisi lipu wan
 1. mi jan [nasin ilo pali alasa] li kama lon e mama pona la mama mi li pana sona pi (sona ale mama) e mi</br>
